@@ -6,3 +6,4 @@ currently:
 - ‼️ hackNY '25
 My Instagram:
 [Instagram](https://www.instagram.com/nawzsh_?igsh=YTM1bW1qNmE4Ynhp&utm_source=qr)
+![my cat](https://images.com/cat_img.PNG)
